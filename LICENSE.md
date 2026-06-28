@@ -1,4 +1,4 @@
-# 
+# Professional bybit trading bot tools for Mac OS | VIP bybit trading bot tools for PC Windows. Featuring decentralized exchange api and mean reversion strategy — optimized for maximum performance.
 
 
 
